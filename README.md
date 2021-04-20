@@ -1,1 +1,0 @@
-# vinklecut-terms.github.io
